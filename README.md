@@ -120,3 +120,39 @@
 - All too soon he will have to fend for himself up here. 很快他就不得不自己上树寻找食物了。
 - all too soon 总是太早，过得太快
 - On flat ground, a baby iguana can outrun a racer snake. 在平地上，小蜥蜴比游蛇跑得快。
+
+## Day 3 ✅
+
+### Vocabulary/phrase 🙆‍
+
+- coy (adj.) 害羞的
+- chick (n.) 幼鸟
+- rush (n.) 匆忙
+- tropical (adj.) 热带的
+- sanctuary (n.) 保护区
+- hitchhike (v.) 免费搭车旅行
+- take a fairly view about 对...不讲究，随意
+- fairly 相当的，一定程度的
+  - That's fairly easy. 这相当简单。
+- constitute 构成，组成
+  - Twelve months constitute a year. 一年是12个月组成。
+- sinister (adj.) 不详的，有凶兆的
+- anything sinister 任何不好的事情
+- Something not quit right 有些事不太对劲
+- drive (n.) 决心，欲望
+  - He has a strong drive to succeed. 他有很强的成功欲。
+- incubate (v.) 孵化
+- given 考虑到，鉴于
+- Given his age, he's remarkably excellent. 考虑到他的年龄，他已经非常出色了。
+- relatively 相对的
+  - relatively good / bad 较好 / 较差
+- harmoniously 和谐的
+- come and go 来来往往，时有时无
+- slacken 缓慢，舒缓
+- Witch animal impressed you most? 哪种动物给你印象最深。
+- Buller's albatross 新西兰信天翁
+- Great minds think alike. 英雄所见略同。
+- There is no cheating in love. 没有背叛。
+- Longing for your love, and we'll never be apart. 愿得一人心，白首不分离。
+- soulmate 灵魂伴侣
+- Have a good one. 祝你过得愉快。
