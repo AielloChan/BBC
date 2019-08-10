@@ -156,3 +156,60 @@
 - Longing for your love, and we'll never be apart. 愿得一人心，白首不分离。
 - soulmate 灵魂伴侣
 - Have a good one. 祝你过得愉快。
+
+## Day 4 ✅
+
+### Vocabulary/phrase 🙆‍
+
+- penguin 企鹅
+- exploit 利用，开发
+- extreme 极度的，极端的
+- Antarctic 南极的
+  - the Antarctic 南极地区
+- claw 爪子
+- stomach 胃、肚子
+- colony 群落，生物群
+- desperate 非常需要的，非常想要的
+- take turns (at sth / doing sth) 轮流做
+- guard 保卫，守卫
+- leave 不理会，不干涉
+- harass 骚扰，打扰
+- snatch 夺走抢走
+- commuter 通勤者
+- rush hour 高峰时间
+- insignificant 不重要的，无足轻重的
+- precious 珍贵的，宝贵的
+
+## Day 5 ✅
+
+### Vocabulary/phrase 🙆‍
+
+- intrepid 勇猛的
+- rarely 很少，不常见
+- cliff 悬崖
+- gear 装备，用具
+- bog 沼泽
+- poop 💩
+- swell 波涛起伏
+- batter 连续猛打
+  - battering the door
+- glimpse 瞥一眼
+- destination 目的地，终点
+- landscape 野外
+- waddle 蹒跚而行，摇摇摆摆地走
+- melt 融化
+- unforeseen 意料之外的
+- beach 沙滩，海滩
+- a scene of 一场
+- death 死亡
+- destruction 毁灭，消灭，破坏
+- astonishing 令人惊讶的，惊人的
+- mind-blowing 令人惊奇的，令人印象深刻的
+- heartbreaking 令人心碎的
+- unforgettable 令人难忘的
+
+## Day 6 ✅
+
+### Vocabulary/phrase 🙆‍
+
+- for better or worse 不论好坏
